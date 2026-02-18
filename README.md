@@ -5,7 +5,7 @@ You see, i just feel so miserable. I mean- yeah, im lonely asf, but I don't want
 So anyway you can call me Princess Bupcake.., or Kyootie, my pronouns are They/It,,, I'm Agender..
 yehaww
 
-i wont talk most of of the time, cause . . . yeah.
+Um.
 
 
 -
@@ -31,4 +31,24 @@ i wont talk most of of the time, cause . . . yeah.
 -
 
 
-YOU SEE , IT SEEMS THAT I'M NOT THAT GOOD OF A PERSON.
+YOU SEE , IT SEEMS THAT I'M NOT THAT GOOD OF A PERSON. I NEVER WAS. I JUST GOT WORSE OVER THE YEARS
+
+
+I'LL NEVER.
+
+NEVER.
+
+ .....
+
+ YOU CANT MAKE ME
+ YOU CANT MAKE ME
+ YOU CANT MAKE ME
+ YOU
+ YOU
+ YOU
+ YOU
+
+
+
+ ![Spr_tenna_sad_turned_b](https://github.com/user-attachments/assets/485dcf14-3490-4b7f-a83a-70e6bf04c5a4)
+
